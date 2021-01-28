@@ -1,0 +1,2 @@
+# isletme
+İşletmeye bto b
